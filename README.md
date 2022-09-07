@@ -1,4 +1,5 @@
-![Hello](https://user-images.githubusercontent.com/90460164/186065747-f1aa7010-a3e7-4346-adc2-37b5a9e2d93f.gif)
+![Hello (72 × 10 inci)](https://user-images.githubusercontent.com/90460164/188816224-da3d101c-09e6-4fe5-9f8a-b149cef6cc66.gif)
+
 
 # 💫 About Me:
 🤝 Halo, Perkenalkan nama saya Gilang Kurnia Pandhudewanata atau bisa dipanggil Gilang. Saya berasal dari Bojonegoro, Jawa Timur.<br><br>🔭 Mahasiswa S1 Program Studi Geofisika Universitas Gadjah Mada<br><br>🌱 Bojonegoro, 26 September 2002<br><br>⚡ Editing dan Bermain Game<br><br>💬 “Hasil tertinggi dari pendidikan adalah toleransi” – Hellen Keller
